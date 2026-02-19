@@ -7,3 +7,4 @@ i am sometimes nonverbal selectively or nonselectively! call me flutter or puffi
 
 
 ![flutterinfocard](https://github.com/user-attachments/assets/dccc689c-a618-4aad-8d4a-b195ebe891b9)
+## SERIOUSLY THO, DONT BE AFRAID TO C+H WITH ME !! ^_^
